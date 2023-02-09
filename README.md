@@ -1,4 +1,4 @@
-### Olá, eu sou a larissa! 👋
+### Olá, eu sou a Larissa! 👋
 
 ##
 
